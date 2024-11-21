@@ -1,4 +1,5 @@
 # Memory-5.2
-![image](https://github.com/user-attachments/assets/55f05b9d-f6f3-465c-a908-804ace1c8406)
+![image](https://github.com/user-attachments/assets/90349e44-ddb5-4513-aee7-0785b7cbb2f8)
+
 
 
